@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Bdkfbj
 - 👀 I’m interested in Making bot
 - 🌱 I’m currently learning detailed js
-- 📫 My discord tag :- shi_55 , fell free to reach me
-- 😄 Pronouns: Silent
+- 📫 My discord tag :- unknown._55 , fell free to reach me
+- 😄 Pronouns: Unknown
 - ⚡ Fun fact: I like cat
 
 <!---
